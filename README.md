@@ -1,2 +1,2 @@
-# meiahn.github.io.-
+# meiahn.github.io.
 Graphic Design For The Web
